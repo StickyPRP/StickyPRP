@@ -1,10 +1,9 @@
-📱: Nothing Phone (2)
-⌚: CMF by Nothing Watch Pro
-🎧: Nothing ear (2)
+📱: Nothing Phone (3)
+⌚: CMF by Nothing Watch Pro 2
+🎧: Nothing Headphone (1)
 
 Name: Sticky
 Real Name: (sag ich Ned)
-Alter 17
+Alter 19
 Herkunft  🇩🇪 
-Status: Vergeben
-Beruf: Verkäufer
+Beruf: KBVSSR
